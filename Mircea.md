@@ -1,5 +1,4 @@
 # MIRCEA LIVADARIU  
-mircea@livadariu.com | 425.985.2846 | www.linkedin.com/in/mirceal  
 
 ## PROFESSIONAL SUMMARY
 Build, grows and improves the profitability, performance, and value of large-scale tech organizations.  
